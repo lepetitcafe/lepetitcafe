@@ -1,3 +1,7 @@
+The contents and pages contained here are a partial archive of the website for Le Petit Cafe, previously located at 225 Montowese St, Branford, CT, 06405.
+
+
+August 2022
 To our beloved Le Petit Café Patrons, Friends, and extended Family:
 
 With this letter, we are reaching out to our dear patrons, friends and family in our treasured Branford, across our beautiful Connecticut coast, New England and the Tri-State area, and beyond.  
